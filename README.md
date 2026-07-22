@@ -180,9 +180,9 @@ This project helped in understanding:
 
 B.Sc. Computer Science Graduate
 
-GitHub: https://github.com/yourusername
+GitHub: https://github.com/agastiyajenifera-sketch
 
-LinkedIn: https://linkedin.com/in/yourprofile
+LinkedIn: https://linkedin.com/in/a-agastiya-jenifer-8435b2327
 
 ---
 
